@@ -6,7 +6,7 @@
 
 **1. Pre-Socratics** (c. 600–400 BCE)
 
-- **[[Thales of Miletus]], Heraclitus, Parmenides, Anaximander, Pythagoras**  
+- **[[Thales of Miletus]], [[Heraclitus of Ephesus]], [[Parmenides of Elea]], [[Anaximander of Miletus]], [[Pythagoras of Samos]]**
     _Explored nature, being, and the origins of the cosmos. Birth of rational inquiry._
     
 
