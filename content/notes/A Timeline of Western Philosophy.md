@@ -4,7 +4,7 @@
 
 ### 🏛️ **Ancient Philosophy (c. 600 BCE – 500 CE)**
 
-**1. Pre-Socratics** (c. 600–400 BCE)
+**1. [[Pre-Socratics]]** (c. 600–400 BCE)
 
 - **[[Thales of Miletus]], [[Heraclitus of Ephesus]], [[Parmenides of Elea]], [[Anaximander of Miletus]], [[Pythagoras of Samos]]**
     _Explored nature, being, and the origins of the cosmos. Birth of rational inquiry._
