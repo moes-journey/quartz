@@ -1,3 +1,6 @@
+**The B.L.U.E. System
+
+https://www.youtube.com/watch?v=qcRKmm3B25c - ideas of structuring the garden
 
 
 **Timelines Western Philosophy
@@ -8,3 +11,4 @@
 [Philosophy Pages](https://www.philosophypages.com/dy/zt.htm) - weird looking website might b good tho
 [C.D. Publications](https://cdpub.org/timeline-of-western-philosophy) - Some guy from SoCal just uploading PDFs
 
+ 

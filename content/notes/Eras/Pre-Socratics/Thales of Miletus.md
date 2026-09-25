@@ -39,4 +39,6 @@ During the Bronze Age Miletus already prospered as a major center of trade, cult
 > Though now that I think about it: Is it the happy that write? Is it the happy that think? Is it the happy that complain and whine and ask questions?
 
 
-Anyway, the people who started asking these questions founded the Milesian school which consists of [[Thales of Miletus]] [[Anaximander of Miletus]] and Anaximenes. 
+Anyway, the people who started asking these questions we call the Milesian school which consisted of [[Thales of Miletus]], [[Anaximander of Miletus]] and Anaximenes and more. The Milesian school however, is part of the Ionian school which added Heraclitus, Diogenes and Hippon to the think pool. 
+
+
